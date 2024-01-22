@@ -4,4 +4,9 @@
 
 ![image](https://github.com/realchavoo/valenciaa/assets/133610412/bb8e4c7d-5f57-40bb-b548-237c6cb23429)
 
+https://discord.gg/valencia   
+
+
+https://discord.gg/valencia
+
 
